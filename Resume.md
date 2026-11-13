@@ -17,6 +17,13 @@ _With ten years of experience in education working with diverse learners and sta
 
 **Experience**
 
+**Levata Human Performance at K.Hovnanian,** Remote September 2026 – present
+
+**_Learning & Development Lead_**
+
+- Lead the development of integrated training plans for multiple projects
+- Coach training partners on best practices, new tools, and tailoring training for specific audiences
+
 **SymphonicHCM at Crocs,** Remote June 2023 – April 2025
 
 **_Training Lead_**
