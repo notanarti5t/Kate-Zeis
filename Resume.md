@@ -1,6 +1,5 @@
 **Kate Zeis**
 
-[katezeis@gmail.com](mailto:katezeis@gmail.com) (713) 364-5283
 
 _With ten years of experience in education working with diverse learners and stakeholders, I am a learning experience designer who creates learning solutions that blend the learners' and the organization's needs, so learning impact is maximized._
 
